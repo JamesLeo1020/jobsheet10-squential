@@ -1,0 +1,9 @@
+# jobsheet10-squential
+![Alt Text]()https://github.com/leo-gaming/jobsheet10-squential/blob/master/jobsheet10%20-%20NetBeans%20IDE%208.2%2020_09_2019%2010_28_09.png
+![Alt Text](https://github.com/leo-gaming/jobsheet10-squential/blob/master/jobsheet10%20-%20NetBeans%20IDE%208.2%2020_09_2019%2010_28_31.png)
+![Alt Text](https://github.com/leo-gaming/jobsheet10-squential/blob/master/jobsheet10%20-%20NetBeans%20IDE%208.2%2020_09_2019%2010_28_44.png)
+![Alt Text](https://github.com/leo-gaming/jobsheet10-squential/blob/master/jobsheet10%20-%20NetBeans%20IDE%208.2%2020_09_2019%2010_29_05.png)
+![Alt Text]https://github.com/leo-gaming/jobsheet10-squential/blob/master/jobsheet10%20-%20NetBeans%20IDE%208.2%2020_09_2019%2010_35_09.png()
+![Alt Text](https://github.com/leo-gaming/jobsheet10-squential/blob/master/jobsheet10%20-%20NetBeans%20IDE%208.2%2020_09_2019%2010_37_27.png)
+![Alt Text](https://github.com/leo-gaming/jobsheet10-squential/blob/master/jobsheet10%20-%20NetBeans%20IDE%208.2%2020_09_2019%2010_42_37.png)
+![Alt Text](https://github.com/leo-gaming/jobsheet10-squential/blob/master/jobsheet10%20-%20NetBeans%20IDE%208.2%2020_09_2019%2010_43_04.png)
